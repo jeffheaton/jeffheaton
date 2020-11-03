@@ -1,4 +1,4 @@
-### Hi there 👋
+Subscribe to my [YouTube Channel](https://www.youtube.com/user/HeatonResearch) for the latest on all my projects.
 
 <!--
 **jeffheaton/jeffheaton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
